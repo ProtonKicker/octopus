@@ -8,3 +8,8 @@ Written in Go
 from:
 
 https://x.com/ToviDing/status/2068966353562931408
+
+#### Misc
+Honestly I felt like this person's looks a lot better
+
+https://www.reddit.com/r/WplaceLive/comments/1mlhg7g/i_drew_a_squid/
